@@ -7,4 +7,3 @@
 ![5](https://user-images.githubusercontent.com/52196263/90334001-c0d82500-dfca-11ea-90d2-6ef39a94a88a.PNG)
 ![6](https://user-images.githubusercontent.com/52196263/90334002-c170bb80-dfca-11ea-87e9-2e6bb150bb72.PNG)
 ![7](https://user-images.githubusercontent.com/52196263/90334003-c170bb80-dfca-11ea-9b00-bae57e69250a.PNG)
-"# Afpa-Tachete" 
